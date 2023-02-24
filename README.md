@@ -1,1 +1,1 @@
-# trex.color.mobil
+# JUEGOS-COMPATIBLES-CON-DISPOSITIVOS-AM2
